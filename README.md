@@ -1,1 +1,1 @@
-# collage-assignment-
+# college-assignment
